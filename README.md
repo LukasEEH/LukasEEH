@@ -1,3 +1,1 @@
-🙋🏽‍♂️@LukasEEH | 
-👨🏽‍🎓computer science | 
-🌍Germany
+🙋🏽‍♂️@LukasEEH | 🌍Germany
